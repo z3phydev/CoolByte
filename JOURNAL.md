@@ -8,7 +8,8 @@
 
 ## 11/5/2025 - Initial Idea on Paper  
 
-A quick and drity tranfer from idea to paper. [1000003445](/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6ODcwMSwicHVyIjoiYmxvYl9pZCJ9fQ==--5eca93ab71bf8caf2186e5a3146522f1b2459693/1000003445.jpg)![1000003444](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6ODcwMCwicHVyIjoiYmxvYl9pZCJ9fQ==--cb1cbbd0f98a410e35228df9919cd5b38b7b1903/1000003444.jpg)
+A quick and drity tranfer from idea to paper, but the essence of the idea is captured. This is mostly just for everyone to see my frist thoughts and see how they develop ![1000003444](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6ODcwMiwicHVyIjoiYmxvYl9pZCJ9fQ==--c23faab6dc8ab18cbe36d48d3618e91851655ea7/1000003444.jpg)
+![1000003445](https://blueprint.hackclub.com/user-attachments/blobs/proxy/eyJfcmFpbHMiOnsiZGF0YSI6ODcwMywicHVyIjoiYmxvYl9pZCJ9fQ==--5ece5d2c2df870a3e33f6b68652ecfc587389e40/1000003445.jpg)
 
   
 
